@@ -1,5 +1,5 @@
 ## 🚀 About Me
-👋 Hi, I'm [Your Name]!  
+👋 Hi, I'm [Gaurav Gaikwad]!  
 🎓 BCA Student | ☁️ Aspiring Cloud Engineer | 🐧 Linux Enthusiast  
 
 ### 🔹 My Skills  
